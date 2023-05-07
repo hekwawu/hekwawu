@@ -14,6 +14,6 @@ Self-teaching my way through data analysis and visualization
 
 ### Some of my favorite things:
 - Plants (22 and counting...)
-- Candles from [Harlem Candle Company](https://www.harlemcandlecompany.com/)
+- Candles from Harlem Candle Company
 - G2 Pilot Pens, 5mm only
 - Eco-brutalist architecture
